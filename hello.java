@@ -1,0 +1,5 @@
+tumkur 
+gubbi
+banglore
+kunigal
+
